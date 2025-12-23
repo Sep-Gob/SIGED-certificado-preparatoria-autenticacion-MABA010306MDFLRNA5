@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MABA010306MDFLRNA5
+MABA010306MDFLRNA5
